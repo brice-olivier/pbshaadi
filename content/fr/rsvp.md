@@ -16,4 +16,4 @@ Le 21 & 22 Décembre 2022.
 Informez-nous de votre présence en répondant au questionnaire suivant:
 
 
-{{< form-contact action="https://fabform.io/f/CYCFlxO" >}}
+{{< form-contact action="https://fabform.io/f/rejj3WZ" >}}
