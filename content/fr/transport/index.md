@@ -47,6 +47,7 @@ Au plaisir de vous voir le 21 et 22 Décembre :-)
 
 *Notes:*
 * *LYS: Lyon Saint-Exupéry*
+* *GVA: Genève*
 * *DEL: New Delhi*
 * *CDG: Paris, Charles de Gaulle*
 * *JDH, Jodhpur*
