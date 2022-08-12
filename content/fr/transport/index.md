@@ -25,6 +25,9 @@ Pour ceux qui souhaiteraient en profiter pour faire un road trip, nous vous cons
 
 Il reviendra vers vous avec un devis. Il faudra quand même réserver votre avion France -> Inde (et retour) indépendamment.
 
+Mise à jour 12/08/2022: J'ai eu quelques retours négatifs concernant Sanjeev pour les personnes qui souhaitaient quelque chose de sûr-mesure. N'hésitez pas à nous contacter si jamais vous n'arrivez pas à obtenir ce que vous voulez. Sinon, certains d'entre vous ont trouvé des offres intéressantes auprès des agences suivantes: (Evaneos)[https://www.evaneos.fr/], (Nomade aventure)[https://www.nomade-aventure.com/].
+
+
 ## Séjour courte durée
 
 Pour ceux qui souhaiteraient simplement faire l'aller retour:
